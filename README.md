@@ -1,2 +1,1 @@
-# nrincon.github.io
-## Natalia Rincon Personal Website
+# Natalia Rincon Personal Website
